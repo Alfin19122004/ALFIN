@@ -60,4 +60,4 @@ _Tagore Engineering College, Chennai_
 - **LinkedIn:** https://www.linkedin.com/in/alfin-b-ba979727a  
 
 
-*Thank you for visiting! Feel free to connect — I'm open to internships & project collaborations.*  
+*Thank you for visiting! Feel free to connect — I'm open to internships ,job, project collaborations.*  
